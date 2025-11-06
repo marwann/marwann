@@ -1,3 +1,3 @@
 - Co-founder of [Superdocu.com](https://www.superdocu.com). We help companies onboard people, collect documents and information and stay compliant.
-- I keep some time in my agenda for growth and automation consulting
+- I keep some time in my planning for growth and automation consulting
 - About me: [Marwann.com](https://www.marwann.com) - [LinkedIn](https://www.linkedin.com/in/marwann) - [Instagram](https://www.instagram.com/marw.ann)
